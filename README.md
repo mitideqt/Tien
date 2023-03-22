@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Tiến from Việt Nam.
-- 👀 I’m interested in technology, sports, fantasy, crazy ideas
+- 👀 I’m interested in technology, sports, fantasy, ideas that improve society!
 - 🌱 I’m currently learning quantum technology
 - 💞️ I’m looking to collaborate on life
 - 📫 How to reach me "minhtien2812000@gmail.com"
