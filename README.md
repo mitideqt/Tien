@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Tiến from Việt Nam.
 - 👀 I’m interested in science, technology, sports, fictions, ideas that improve society!✨
-- 🌱 I’m currently learning Quantum Technology, because I believe it'll change the world!💥
+- 🌱 I’m currently learning Quantum Technology, I believe it'll change the world!💥
 - 📫 How to reach me "minhtien2812000@gmail.com"
 
 <!---
